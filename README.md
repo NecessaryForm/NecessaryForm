@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Daniel.
+- 👀 I’m an economist and engineer.
+- 🌱 Looking for opportunities in VC or tech.
+- 📫 Reach me at 'my name' at danie1 . xyz
